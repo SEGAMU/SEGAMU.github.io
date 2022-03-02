@@ -1,1 +1,1 @@
-# Sergio's Webpage
+# SEGAMU.github.io
